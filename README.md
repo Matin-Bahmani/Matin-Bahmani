@@ -1,4 +1,4 @@
-# ✋ Hello There:
+# ✋ Hello there:
 Matin - Graphic designer & aspiring developer.<br>Focused on design, Al, creative digital experiences, and open internet technologies.
 
 # 🚀 Skils:
